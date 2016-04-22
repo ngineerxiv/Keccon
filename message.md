@@ -8,7 +8,7 @@
 おいわいのことば
 ```
 
-## ara-ta3(新郎/新婦との関係: 闇)
+## ara-ta3 (新郎/新婦との関係: 闇)
 
 BLEACH38 FEAR FOR FIGHT
 
